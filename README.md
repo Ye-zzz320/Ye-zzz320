@@ -20,6 +20,6 @@ let's talk a bit first, okay? ♡
 if you respect me, i'll respect you too.
 if there's anything you can't tolerate, please tell me — that way we can understand each other better.
 i'll try not to be the kind of person you'd dislike.
-and i hope you'll do the 
+and i hope you'll do the same for me.
 
 ｡ ₊°༺❤︎༻°₊ ｡
