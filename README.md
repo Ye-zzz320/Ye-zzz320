@@ -27,12 +27,15 @@ and i hope you'll do the same for me.
 
 ✧ ⋆⸝⸝𓊆ྀི shipping 𓊇ྀི ✧
 
-⋆ hh (hazbin hotel): for adam, i only ship adam ✖️ eve. i don't accept any other adam ships (like adam ✖️ lute). if you ship him with someone else, please don't c+h with me. 🫩
+⋆ hh (hazbin hotel): 
+for adam, i only ship adam ✖️ eve. i don't accept any other adam ships (like adam ✖️ lute). if you ship him with someone else, please don't c+h with me. 🫩
 ⋆ but for other hh characters i don't mind at all~ feel free to c+h with me no matter what you ship for them! ⸜(｡˃ ᵕ ˂ )⸝♡
 
 ⋆ crk (cookie run kingdom): my absolute favorite ships are only:
+  
   ↳ smc + esc 
   ↳ pvc + wlc  ❀
+  
   i don't accept any other ships involving these specific four characters! 
   but for other crk characters, i don't care at all, feel free to c+h~ ✧
 
@@ -42,4 +45,5 @@ and i hope you'll do the same for me.
 
 ⋆ i'm currently an inquirer of christianity. it's a very important part of my life, and it's why i have certain boundaries 
 i'm not extreme or dogmatic, just walking my own path quietly. thank you for respecting that. ᯓ★ ˙˚ 𓆩♡𓆪
+
 ｡ ₊°༺❤︎༻°₊ ｡
