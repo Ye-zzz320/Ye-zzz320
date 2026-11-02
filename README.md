@@ -11,7 +11,7 @@ So After adding me, chat with me anytime plsss🥹. I don't bite.ʚ♡ɞ(ू• 
 ✦ i just want to be honest with you first.
 
 please don't add me as a friend if we don't know each other yet — i probably won't accept.
-let's talk a bit first, okay? ♡
+let's talk a bit first ♡
 
 𓆩♡𓆪 —— 𓆩♡𓆪
 
